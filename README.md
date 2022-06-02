@@ -1,2 +1,6 @@
 # dsc291_image_compression
-wooohooooo
+wooohooooo\n
+MAKE MEEE\n
+GIMMEEE\n
+RASPBERRY\n
+WOOOHOOO\n
